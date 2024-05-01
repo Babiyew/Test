@@ -1,2 +1,2 @@
-cornel University
-New York
+Cornel University
+
